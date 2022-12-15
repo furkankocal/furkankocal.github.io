@@ -1,1 +1,0 @@
-# furkankocal.github.io
